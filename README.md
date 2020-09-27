@@ -3,7 +3,7 @@
 
 User 1:
 Name: Alexander J Castillo 
-UserID: ajc754
+UserID: ajc754 '\n'
 
 User 2:
 Name: 
