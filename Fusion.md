@@ -1,0 +1,1 @@
+I remember seeing a document for this class, which I'm like 99% sure was the syllabus, with the word Fusion with a hyperlink and I clicked on it and got redirected to Goten and Trunks finally mastering the fusion dance. I thought it was so cool. 
